@@ -9,7 +9,7 @@ We provide our clients with tailored solutions to transform their business and U
 Reach out and find out what problem we can solve for you today.
 <br/>
 <br/>
-Email: khan.i.daood@clouduplift.co.uk#
+Email: khan.i.daood@clouduplift.co.uk
 <br/>
 or
 <br/>
